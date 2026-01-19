@@ -1,2 +1,1 @@
-## Hi there 👋
-## 🔭 I’m a high school student
+## Hi there 👋 , i'm sarah muyassarah
